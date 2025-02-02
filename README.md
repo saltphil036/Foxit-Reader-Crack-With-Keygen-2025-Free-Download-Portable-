@@ -1,6 +1,6 @@
 # Foxit-Reader-Crack-With-Keygen-2025-Free-Download-Portable-
 <div align="center">
-<img src="lXDC4H_93laV1_eHHFT949fUipzkiFOBH3fAiZZUCdYojwUyX2aTonS1aIwMrx6NUIsHfUHSLzjGJFxxtoGVDYZsgZySrsJ7RMjtUdfTvVvAj7idX6TllwQh5D9esdPe2qMJIBWd" width="200">
+<img src="https://www.foxit.com/static/company/images/2022/products/pdf-reader/header.webp" width="200">
 </div>
 
 # Foxit Reader Crack
